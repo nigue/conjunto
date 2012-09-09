@@ -1,4 +1,7 @@
 chiupalo
 con mayo
 
-PIco pal que lee
+caca pal que lee
+
+
+666 amor a satan!!!!
